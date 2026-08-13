@@ -1,4 +1,4 @@
-# Hi :wave:, I'm  Alicia-Lee-Yue-Lin
+# Hi :wave:, I'm  AliciaLeeYueLin
 
 ## :snake: My Contribution Snake
 
